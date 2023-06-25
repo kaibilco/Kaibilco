@@ -3,7 +3,7 @@
 
 
 ## 🌐 Linkedin:
-https://www.linkedin.com/in/jos%C3%A9-andr%C3%A9s-toro-narv%C3%A1ez-846912222/
+https://www.linkedin.com/in/Jose-Andres-Toro-Narvaez/
 
 ## 🌐 Correo:
 joantoro64@gmail.com
